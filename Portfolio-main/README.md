@@ -4,8 +4,7 @@
 
 ---
 
-### Made with ❤️ by [Badugu Bharath Kumar](https://www.instagram.com/_bharath_ly_/)
-
+##Made by kari pooja❤️
 
 
 
